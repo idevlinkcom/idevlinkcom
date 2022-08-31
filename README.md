@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @idevlink
+- 👀 See my script here https://idevlink.com
+- 📫 How to reach me https://t.me/idevlink
